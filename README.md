@@ -1,1 +1,2 @@
-Hi, This is Navya Elchuri
+Hi There 👋
+This is Navya Elchuri
